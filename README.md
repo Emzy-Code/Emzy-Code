@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Emi! Looking for a job to help support my master's.
+- 👋 Hi, I’m Emi! I'm currently doing a part time master's at LIS!
 
 
